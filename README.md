@@ -1,2 +1,0 @@
-# Taguhi1
-Homework
